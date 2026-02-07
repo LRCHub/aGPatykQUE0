@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "青信号",
+  "base_artist": "Furui Riho",
+  "createdAt": "2026-02-07T15:34:54.278663Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "青信号",
+      "artist": "Furui Riho",
+      "has_synced": false,
+      "path": "select/pl_01_青信号_Furui_Riho.txt"
+    }
+  ]
+}
