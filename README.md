@@ -1,0 +1,50 @@
+# Furui Riho – 青信号
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Yeah It's so true
+何にも道は間違ってないわ True
+まるで仕組まれていったようなムーブ yeah
+誰だってない神様が決めた Rules
+ただ無我夢中
+固まる Stereotype
+あんたの好きにばっかさせない
+がむしゃらだった DA DA DA DA
+中指立てたのが That's right
+嬉しいな手にした優勝杯
+余計なプライドは捨てて feel high
+がむしゃらだった DA DA DA DA
+無邪気なままの私でいたいや
+Oh Oh
+I don't wanna go back no more
+go back no more
+タイミングはもう青になって
+消えない想いが走り出す
+NO NO NO NO no more cry yeah
+NO NO NO NO nobody can stop me
+Nobody
+大丈夫だからそのままでいっちゃって
+wanna be myself yeah
+魔法みたいな言葉
+信じていたこのドラマ in Sapporo
+何処にいた?やっと
+自分を見つけたのは
+ほらここまで来るためか
+役に立った Heart Breaker
+張り付いては はがしたら
+自分を許してあげて
+Oh Oh
+I don't wanna go back no more
+go back no more
+好きにやるわ
+Oh Rebirth Rebirth
+全部置いてく そうここに
+タイミングはもう青になって
+消えない想いが走り出す
+NO NO NO NO no more cry yeah
+NO NO NO NO nobody can stop me
+Nobody
+大丈夫だからそのままでいっちゃって
+wanna be myself yeah
+```
